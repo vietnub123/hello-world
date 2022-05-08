@@ -1,2 +1,13 @@
-# hello-world
-nub
+lmao
+
+buhbuh
+
+
+hacker
+
+
+hackhackhack 
+chua he
+
+
+
